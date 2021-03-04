@@ -7,3 +7,4 @@ Odio gera odio, e esse odio gera mais odio... criando um ciclo sem fim, uma corr
 
 Revisor - J. Victor
 Facilitador - Ricardo Albuquerque
+Suporte - João Vinícius
