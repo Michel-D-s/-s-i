@@ -6,3 +6,4 @@ Odio gera odio, e esse odio gera mais odio... criando um ciclo sem fim, uma corr
 04/03/2021
 
 Revisor - J. Victor
+Facilitador - Ricardo Albuquerque
